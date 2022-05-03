@@ -1,2 +1,2 @@
 # BrunoDanielDev.github.io
-Currículo 
+
